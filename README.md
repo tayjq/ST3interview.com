@@ -1,1 +1,1 @@
-# jingqintay.com
+# blog.jingqintay.com
